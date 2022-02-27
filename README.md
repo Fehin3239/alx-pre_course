@@ -1,1 +1,1 @@
-Living in a rush
+God is great.
